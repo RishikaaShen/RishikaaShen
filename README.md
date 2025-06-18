@@ -32,7 +32,7 @@
 
 **📫 How to Reach Me**
 
-Email: rishikaatg@gmail.com
+Email: rishikaa10yson@gmail.com
 
 LinkedIn: www.linkedin.com/in/rishikaa-t-g-2416a6291
 
